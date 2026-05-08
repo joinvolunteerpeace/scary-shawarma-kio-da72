@@ -1,4 +1,4 @@
-
+vip Scripts for scary shawarma kiosk offers the most advanced scary shawarma kiosk Script, with speed and fly. Perfect for dominating any match.
 
 
 
